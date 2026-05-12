@@ -1,4 +1,4 @@
-#  
+#  hidden Script for the strongest battlegrounds is the best the strongest battlegrounds Script, featuring esp and auto-upgrade. Safe and powerful for
 
 
 
